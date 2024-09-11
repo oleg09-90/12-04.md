@@ -11,7 +11,7 @@
 ![2](https://github.com/user-attachments/assets/634f3168-2ab3-45d6-bc55-6fb82cd51520)
 
 ### Задание 3
-![3](https://github.com/user-attachments/assets/2f68934e-faa9-4d17-8bf4-501fc768502d)
+![3](https://github.com/user-attachments/assets/7d882d83-e9b2-44fc-89e1-81d508a7e554)
 
 ### Задание 5
 ![4](https://github.com/user-attachments/assets/52651a54-1d2c-4abd-ad57-86a05a3ef032)
